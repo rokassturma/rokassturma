@@ -22,4 +22,4 @@ I enjoy building gamified and practical projects that help me better understand 
 ## 📫 Contact
 
 - [📬 Email](mailto:rokas.sturma@gmail.com)
-- [💼 LinkedIn]()
+- [💼 LinkedIn](linkedin.com/in/rokas-šturma-659931367)
